@@ -2,7 +2,7 @@
 
 $${\color{red}~~GRAPHIC~~ \space ~~BY~~ \space ~~ME~~ \space ~~.~~}$$
 
-![](https://media.discordapp.net/attachments/1066762081359122534/1525339701349974122/Untitled76_20260711111454.png?ex=6a5306cc&is=6a51b54c&hm=70c36441c1fde911bdbc6db2fc712056d2331db3d21f3a522f12aae4c34139b4&=&format=webp&quality=lossless&width=648&height=648)
+![](https://media.discordapp.net/attachments/1066762081359122534/1525339701349974122/Untitled76_20260711111454.png?ex=6a657bcc&is=6a642a4c&hm=6dbf07c0e9c80b2711c32713ab2b1d0f3e2827fda4b47030d79067e262f42a10&=&format=webp&quality=lossless&width=648&height=648)
 
 $${\color{darkred}! \space ! \space N \space F \space 2 \space U \space ! \space !}$$
 
